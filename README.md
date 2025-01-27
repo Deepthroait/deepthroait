@@ -1,6 +1,6 @@
 Forked from DeepSeekV3
 <div align="center">
-![image](https://github.com/user-attachments/assets/06e0eaa3-ca92-4b3c-9e99-66b8d89ab975)
+![image](https://github.com/user-attachments/assets/7ef32056-bbef-4c51-b236-371011df1b44)
 </div>
 <h1>Redefine Deep Throat Though DeepSeek</h1>
 
