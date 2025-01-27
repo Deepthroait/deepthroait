@@ -1,6 +1,7 @@
 Forked from DeepSeekV3
-
-
+<div align="center">
+![image](https://github.com/user-attachments/assets/06e0eaa3-ca92-4b3c-9e99-66b8d89ab975)
+</div>
 <h1>Redefine Deep Throat Though DeepSeek</h1>
 
 <h2>Abstract</h2>
@@ -25,16 +26,6 @@ The handy new tool is an AI agent called Deep ThroAIt. And it does just that! It
 
 <p>The device was designed for people who aren't always able to be together but want better ways to stay in touch with each other's sexual desires and activities. It's great for Doms' and subs' relationships where training can be assigned with verified reports produced to show the Dom how well the sub is doing. It shows how they're working hard for you and how well they are doing at it! Nothing puts a smile on your face like knowing your partner is a drooling mess choking down on a big piece for you.</p>
 
-
-
-
-<!-- markdownlint-disable first-line-h1 -->
-<!-- markdownlint-disable html -->
-<!-- markdownlint-disable no-duplicate-header -->
-
-<div align="center">
-  <img src="https://github.com/deepseek-ai/DeepSeek-V2/blob/main/figures/logo.svg?raw=true" width="60%" alt="DeepSeek-V3" />
-</div>
 <hr>
 <div align="center" style="line-height: 1;">
   <a href="https://www.deepseek.com/" target="_blank" style="margin: 2px;">
