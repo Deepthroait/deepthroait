@@ -22,7 +22,7 @@ The handy new tool is an AI agent called Deep ThroAIt. And it does just that! It
 
 <p>The Deep ThroAIt is a small device and AI agent you can use with any dildo or even a real penis. It tracks the position of your head as you take the phallus into your mouth. It coaches you through sessions, giving you feedback on how to take the dildo in your mouth, ensuring you have the right pacing and pausing to help get used to the sensation, all the while slowly progressing your ability. It sends your results to an online dashboard where you can keep track of your progress and even share it with your partner.</p>
 
-<h3>Who is this tool good for?</h3>
+<h3>2. Who is this tool good for?</h3>
 
 <p>The device was designed for people who aren't always able to be together but want better ways to stay in touch with each other's sexual desires and activities. It's great for Doms' and subs' relationships where training can be assigned with verified reports produced to show the Dom how well the sub is doing. It shows how they're working hard for you and how well they are doing at it! Nothing puts a smile on your face like knowing your partner is a drooling mess choking down on a big piece for you.</p>
 
